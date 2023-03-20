@@ -14,3 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- (^///^)   I am interested in Unity and AI/ML
+- (☞ﾟヮﾟ)☞   I am learning something new everyday
+- (●'◡'●)     I am currently studying IT
+- ╰(*°▽°*)╯     You can contact me via GitHub or LinkedIn
+- (*/ω＼*)         Most importantly I want to do have fun and do it good
+
