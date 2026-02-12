@@ -1,4 +1,4 @@
-### Hi guys (^///^)
+### Hej
 
 - ✨ I am interested in game development, linear algebra and software development in general
 - 📕 I am learning something new everyday
